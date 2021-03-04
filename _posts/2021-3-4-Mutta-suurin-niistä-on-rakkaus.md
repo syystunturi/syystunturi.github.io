@@ -7,7 +7,7 @@ title: Mutta suurin niistä on rakkaus (ἡ ἀγάπη)
 
 > Niin pysyvät nyt usko, toivo, rakkaus, nämä kolme; mutta suurin niistä on rakkaus.
 
-Uskon luonne on vastaanottaa. Myös toivo odottaa vastaanottavansa jotakin. Rakkaus sen sijaan antaa omastaan. Yksin rakkaus tekee meistä Jumalan kaltaisia. 1\. Joh. 4:7 sanoo sen näin:
+Uskon luonne on vastaanottaa. Myös toivo odottaa vastaanottavansa jotakin. Rakkaus sen sijaan antaa omastaan. Näistä yksin rakkaus tekee meistä Jumalan kaltaisia. 1\. Joh. 4:7 sanoo sen näin:
 
 > Rakkaani, rakastakaamme toinen toistamme, sillä rakkaus on Jumalasta; ja jokainen, joka rakastaa, on Jumalasta syntynyt ja tuntee Jumalan.
 
