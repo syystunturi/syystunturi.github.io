@@ -7,7 +7,9 @@ title: Mutta suurin niistä on rakkaus (ἡ ἀγάπη)
 
 > Niin pysyvät nyt usko, toivo, rakkaus, nämä kolme; mutta suurin niistä on rakkaus.
 
-Uskon luonne on vastaanottaa. Myös toivo odottaa vastaanottavansa jotakin. Rakkaus sen sijaan antaa. Siksi se on ylivertainen noihin kahteen muuhun nähden. Yksin rakkaus tekee meistä Jumalan kaltaisia. 1\. Joh. 4:7 sanoo sen näin:
+Todellista rikkautta on siis uskoa Kristukseen, toivoa ja odottaa kaikkea hyvää Jumalalta, rakastaa toinen toistamme ja Jumalaa yli kaiken.
+
+Uskon luonne on vastaanottaa. Myös toivo odottaa vastaanottavansa jotakin. Rakkaus sen sijaan antaa omastaan. Yksin rakkaus tekee meistä Jumalan kaltaisia. 1\. Joh. 4:7 sanoo sen näin:
 
 > Rakkaani, rakastakaamme toinen toistamme, sillä rakkaus on Jumalasta; ja jokainen, joka rakastaa, on Jumalasta syntynyt ja tuntee Jumalan.
 
@@ -19,4 +21,6 @@ Ja 16. jakeen loppuosa jatkaa näin:
 
 > Jumala on rakkaus, ja joka pysyy rakkaudessa, se pysyy Jumalassa, ja Jumala pysyy hänessä.
 
-Rakkaus omistaa täydellisen ilon. Siksi se on suurin noista kolmesta.
+Rakkaus omistaa täydellisen ilon.
+
+Siksi se on ylivertainen noihin kahteen muuhun nähden.
