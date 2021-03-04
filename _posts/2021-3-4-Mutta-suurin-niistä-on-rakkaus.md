@@ -3,7 +3,7 @@ layout: post
 title: Mutta suurin niistä on rakkaus (ἡ ἀγάπη)
 ---
 
-1\. Kor. 13:13 on kaunis kuvaus niistä aarteista, joita ihminen voi yleensä viedä tästä elämästä mukanaan taivaaseen. Todellista rikkautta on uskoa Kristukseen, toivoa ja odottaa kaikkea hyvää Jumalalta, rakastaa toinen toistamme ja Jumalaa yli kaiken.
+1\. Kor. 13:13 on kaunis kuvaus niistä aarteista, joita ihminen voi yleensä viedä tästä elämästä mukanaan taivaaseen. Todellista rikkautta on uskoa Kristukseen, toivoa ja odottaa Jumalalta kaikkea hyvää, sekä rakastaa toinen toistamme.
 
 > Niin pysyvät nyt usko, toivo, rakkaus, nämä kolme; mutta suurin niistä on rakkaus.
 
@@ -11,11 +11,11 @@ Uskon luonne on vastaanottaa. Myös toivo odottaa vastaanottavansa jotakin. Rakk
 
 > Rakkaani, rakastakaamme toinen toistamme, sillä rakkaus on Jumalasta; ja jokainen, joka rakastaa, on Jumalasta syntynyt ja tuntee Jumalan.
 
-Saman luvun 12. jakeen jälkimmäinen puolikas sanoo myös:
+Saman luvun 12. jakeen loppuosa sanoo myös:
 
 > Jos me rakastamme toinen toistamme, niin Jumala pysyy meissä, ja hänen rakkautensa on tullut täydelliseksi meissä.
 
-Ja 16. jakeen loppuosa jatkaa näin:
+Ja 16. jakeen loppu jatkaa näin:
 
 > Jumala on rakkaus, ja joka pysyy rakkaudessa, se pysyy Jumalassa, ja Jumala pysyy hänessä.
 
