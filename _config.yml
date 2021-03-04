@@ -19,9 +19,9 @@ avatar: https://avatars.githubusercontent.com/u/1969656?s=60&v=4
 footer-links:
   dribbble:
   email:
-  facebook:
+  facebook: https://www.facebook.com/jari.lammi/
   flickr:
-  github: syystunturi/syystunturi.github.io
+  github: # syystunturi/syystunturi.github.io
   instagram:
   linkedin:
   pinterest:
@@ -41,7 +41,7 @@ google_analytics:
 
 # Your website URL (e.g. http://barryclark.github.io or http://www.barryclark.co)
 # Used for Sitemap.xml and your RSS feed
-url: xn--9r8h.infp.fi
+url: https://xn--9r8h.infp.fi
 
 # If you're hosting your site at a Project repository on GitHub pages
 # (http://yourusername.github.io/repository-name)
