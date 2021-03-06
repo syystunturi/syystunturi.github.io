@@ -9,9 +9,9 @@ Sopivan hipsuttelukaverin puuttuessa on oikeastaan paikallaan katsoa sinkkuuden 
 
 Niin vaikeata kuin yksin oleminen saattaa hetkittäin ollakin, yksin jääminen voi silti olla hyvä vaihtoehto. Avioliiton nimittäin kuuluu olla tasapainoista ja sopusointuista. Riitelemistä ei aina pysty välttämään, mutta senkin voi tehdä arvostavasti ja nätisti. Meillä joilla on hajonnut avioliitto takana, tiedämme ehkä että toisen kunnioittamisessa saattaa epäonnistua joskus isostikin.
 
-Vaikka olisit kuinka vapaa tahansa menemään uudelleen naimisiin, se ei tarkoita mitään pakkoa tehdä niin. Muutenkin kannattaa ennemmin yrittää tehdä uusia virheitä kuin toistaa vanhoja.
+Tosiasioiden tunnustaminen on kaiken viisauden alku. Vaikka olisit kuinka vapaa tahansa menemään uudelleen naimisiin, se ei tarkoita pakkoa tehdä niin.
 
-Tosiasioiden tunnustaminen on kaiken viisauden alku.
+Muutenkin kannattaa ennemmin yrittää tehdä uusia virheitä kuin toistaa vanhoja.
 
 Voi toki olla myös täysin ilmeistä, että yksin eläminen ei sovi sinulle. Sanoohan 1\. Moos. 2:18 näin:
 
@@ -30,7 +30,7 @@ ennenkuin se itse haluaa.
 
 Martti Luther kirjoittaa Ison Katekismuksen Isä meidän -rukouksen selityksessä jokapäiväisestä leivästä näin:
 
-> Pyydämme, että Jumala antaisi ——— kunnon vaimon, lapset ja talonväen, varjelisi heidät, sallisi työmme, ammattimme ja muun, mitä teemme, menestyä ja onnistua sekä soisi meille luotettavat naapurit ja hyvät ystävät.
+> Pyydämme, että Jumala antaisi — — — kunnon vaimon, lapset ja talonväen, varjelisi heidät, sallisi työmme, ammattimme ja muun, mitä teemme, menestyä ja onnistua sekä soisi meille luotettavat naapurit ja hyvät ystävät.
 
 Voimme varmasti luottaa siihen, että Jumala tietää kyllä parhaiten. Jos on olemassa joku, jonka Hän haluaa antaa, niin sitten on. Juuri tuo on sinkkuuden paras puoli.
 
