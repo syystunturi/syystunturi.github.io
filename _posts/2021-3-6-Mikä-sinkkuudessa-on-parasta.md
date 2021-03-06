@@ -9,7 +9,7 @@ Sopivan hipsuttelukaverin puuttuessa on oikeastaan paikallaan katsoa sinkkuuden 
 
 Niin vaikeata kuin yksin oleminen saattaa hetkittäin ollakin, yksin jääminen voi silti olla hyvä vaihtoehto. Avioliiton nimittäin kuuluu olla tasapainoista ja sopusointuista. Riitelemistä ei aina pysty välttämään, mutta senkin voi tehdä arvostavasti ja nätisti. Meillä joilla on hajonnut avioliitto takana, tiedämme ehkä että toisen kunnioittamisessa saattaa epäonnistua joskus isostikin.
 
-Tosiasioiden tunnustaminen on kaiken viisauden alku. Vaikka olisit kuinka vapaa tahansa menemään uudelleen naimisiin, se ei tarkoita pakkoa tehdä niin. Muutenkin kannattaa ennemmin yrittää tehdä uusia virheitä kuin toistaa vanhoja.
+Tosiasioiden tunnustaminen on kaiken viisauden alku. Vaikka olisit kuinka vapaa tahansa menemään uudelleen naimisiin, se ei tarkoita mitään pakkoa tehdä niin. Muutenkin kannattaa ennemmin yrittää tehdä uusia virheitä kuin toistaa vanhoja.
 
 Voi toki olla myös täysin ilmeistä, että yksin eläminen ei sovi sinulle. Sanoohan 1\. Moos. 2:18 näin:
 
@@ -19,7 +19,7 @@ Ja sama jae jatkuu välittömästi lupauksella, joka on ainakin itselleni tavall
 
 > minä teen hänelle avun, joka on hänelle sopiva".
 
-Kristitylle kunnollisen puolison löytyminen ei ole sattumankauppaa. Kun Jumala valmistaa puolisoita toisilleen, silloin he ovat varmasti toisilleen sopivia. Mistä minä voisin tietää, mitä tulevan puolison on vielä täysin välttämätöntä kokea ennen kuin voisimme kohdata toisemme? Voi nimittäin olla, että ajoitus olisi nyt täysin väärä emmekä siksi ole toisillemme sopivia. Turhasta hätäilystä varoittaa myös Korkea veisu 2:7:
+Kristitylle kunnollisen puolison löytyminen ei ole sattumankauppaa. Kun Jumala valmistaa puolisoita toisilleen, silloin he ovat varmasti toisilleen sopivia. Mistä minä voisin tietää, mitä tulevan puolison on vielä täysin välttämätöntä kokea ennen kuin voisimme kohdata toisemme? Voi nimittäin olla, että ajoitus olisi nyt täysin väärä emmekä siksi ole toisillemme sopivia. Korkea veisu 2:7 varoittaa turhasta hätäilystä sanoen:
 
 > Minä vannotan teitä, te Jerusalemin tyttäret,
 gasellien tai kedon peurojen kautta:
@@ -30,7 +30,7 @@ Martti Luther kirjoittaa Ison Katekismuksen Isä meidän -rukouksen selityksess�
 
 > Pyydämme, että Jumala antaisi — — — kunnon vaimon, lapset ja talonväen, varjelisi heidät, sallisi työmme, ammattimme ja muun, mitä teemme, menestyä ja onnistua sekä soisi meille luotettavat naapurit ja hyvät ystävät.
 
-Voimme varmasti luottaa siihen, että Jumala tietää kyllä parhaiten. Jos on olemassa joku, jonka Hän haluaa antaa, niin sitten on. Juuri tuo on sinkkuuden paras puoli.
+Voimme varmasti luottaa siihen, että Jumala tietää kyllä parhaiten. Jos on olemassa joku, jonka Hän haluaa antaa, niin sitten on. Ja juuri tuo on kenties sinkkuuden kaikkein paras puoli.
 
 Turhan harvoin olen iloinen tai kiitollinen siitä, etten seurustele kenenkään kanssa juuri nyt. Sen verran hellyydenkipeä olen. Mutta ehkä vielä joskus tulee taas se päivä, jolloin rukouksen neljänteen pyyntöön tulee erilainen vastaus.
 
